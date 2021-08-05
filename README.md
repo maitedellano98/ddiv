@@ -1,0 +1,6 @@
+# SoMa 
+
+##Colaboradoras:
+
+* Maite 
+* Sofía
